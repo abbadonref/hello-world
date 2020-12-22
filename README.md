@@ -1,2 +1,2 @@
 # hello-world
-just another one repository
+this is some new way for me, who knows am i going to like it or not...
